@@ -1,1 +1,1 @@
-https://github.com/Netsrfr/42/blob/master/Subjects/Fillit.pdf
+http://www.duckychannel.net/download/user_manual/MINI_User_Manual.pdf
